@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Director of ACM Create<br>💻 SWE Research Assistant @ IT Lab<br>🛠️ Building Cool Projects<br>🔥 Full-Stack & AI Enthusiast<br>🏎️ Hot Wheels Collector<br>
+🚀 Vice President at ACM UTA<br>💻 AI Software Engineer Intern @ Skyryse<br>🔥 Full-Stack & AI<br>🏎️ Hot Wheels Collector<br>
 
 
 ## 🌐 Socials:
